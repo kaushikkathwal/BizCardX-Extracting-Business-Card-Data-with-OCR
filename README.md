@@ -66,4 +66,4 @@ Overall, the result of the project would be a useful tool for businesses and ind
 who need to manage business card information efficiently.
 
 
-linkedin post link-https://www.linkedin.com/posts/kaushik-kathwal-372769290_here-presenting-my-new-project-on-bizcardx-activity-7153045738480918528-JRgU?utm_source=share&utm_medium=member_desktop
+linkedin video post link-https://www.linkedin.com/posts/kaushik-kathwal-372769290_here-presenting-my-new-project-on-bizcardx-activity-7153045738480918528-JRgU?utm_source=share&utm_medium=member_desktop
